@@ -22,7 +22,7 @@ Regardless of their individual traits, cats have a special way of communicating 
 
 Cats also have a knack for finding joy in the simplest things. A sunbeam, a dangling string, or a crinkly piece of paper can become a source of endless amusement. Their ability to find wonder in the everyday is one of the many qualities that make cats such delightful and cherished companions.
 
-## Favorite pasttimes
+## Favorite pastimes
 
 Cats, with their enigmatic personalities and endless curiosity, have a repertoire of favorite pastimes that keep them entertained and their humans amused. Among these, chasing laser pointers reigns supreme. The elusive red dot captivates them, turning even the most reserved feline into a pouncing, playful hunter. The sheer determination and acrobatic leaps they perform in pursuit of the dot are a delightful spectacle.
 
