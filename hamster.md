@@ -1,4 +1,4 @@
-# Hammster
+# Hamster
 
 ## The Adorable World of Hamsters
 
