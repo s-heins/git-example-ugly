@@ -14,7 +14,7 @@ Then there are the head bunts – a sign of affection and trust. When a cat nudg
 
 Indeed, life with cats is never dull. They bring joy, laughter, and a touch of whimsy to our everyday lives, reminding us of the simple pleasures in the world.
 
-## Favorite pasttimes
+## Favorite pastimes
 
 Cats, with their enigmatic personalities and endless curiosity, have a repertoire of favorite pastimes that keep them entertained and their humans amused. Among these, chasing laser pointers reigns supreme. The elusive red dot captivates them, turning even the most reserved feline into a pouncing, playful hunter. The sheer determination and acrobatic leaps they perform in pursuit of the dot are a delightful spectacle.
 
